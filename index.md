@@ -1,5 +1,3 @@
-Here you can say lots of fun things about your site.
+Carpentry maintenance is an important part of keeping your home, business or other wooden structures in top condition. Whether you need small repairs around the house or larger renovations, skilled carpentry maintenance can extend the life of your woodwork and structures.
 
-Maybe say a some things about yourself.
 
-Or maybe what you plan to blog about.
