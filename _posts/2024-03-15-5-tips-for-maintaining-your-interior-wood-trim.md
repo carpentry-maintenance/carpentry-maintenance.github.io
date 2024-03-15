@@ -16,3 +16,4 @@ Wood trim adds beauty and character to any home, but it also requires regular up
 </ul>
 
 With increasing demand for <a href="https://bpm-cs.co.uk/carpenter-jobs-in-bath/"> Carpenter jobs in Bath </a> and surrounding areas due to homeowners making repairs and improvements to their homes, proper maintenance of interior wood trim is more important than ever.
+![pexels-curtis-adams-3935316](https://github.com/carpentry-maintenance/carpentry-maintenance.github.io/assets/163561699/debd5def-4be0-4d8b-8464-ffdff7ec179e)
