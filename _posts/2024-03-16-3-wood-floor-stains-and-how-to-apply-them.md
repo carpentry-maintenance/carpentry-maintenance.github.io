@@ -15,5 +15,4 @@ With the growing demand for <a href="https://bpm-cs.co.uk/carpenter-jobs-in-bris
 
 Proper application is key to avoiding lap marks or uneven colouring. Work in small sections and maintain a wet edge as you go. Then follow with a polyurethane topcoat to protect the new stain job. With the right stain and technique, you'll love how your floors transform!
 
-<div align="center"><img src="https://github.com/carpentry-maintenance/carpentry-maintenance.github.io/assets/163561699/debd5def-4be0-4d8b-8464-ffdff7ec179e" width="80%" height="400"></div>
-
+<div align="center"><img src="https://github.com/carpentry-maintenance/carpentry-maintenance.github.io/assets/163561699/87c9e168-f75e-4c77-9618-c7643901e608" width="80%" height="400"></div>
