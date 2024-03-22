@@ -27,4 +27,4 @@ While power tools get a lot of attention, no carpentry toolkit is complete witho
 
 With demand growing for <a href="https://bpm-cs.co.uk/carpenter-jobs-in-melksham/"> Carpenter jobs in Melksham </a> and the surrounding area, having the right hand tools is crucial. Learn how to start a career in carpentry in Melksham.
 
-<div align="center"><img src="https://github.com/carpentry-maintenance/carpentry-maintenance.github.io/assets/163561699/7f2485dd-67fc-4f24-83e0-ff0fb9b76989" width="80%" height="400"></div>
+<div align="center"><img src="https://github.com/carpentry-maintenance/carpentry-maintenance.github.io/assets/163561699/7f2485dd-67fc-4f24-83e0-ff0fb9b76989" width="50%" height="400"></div>
